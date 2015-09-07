@@ -52,6 +52,10 @@ Our andela fellow s
 
 19. Ikena, basketball, plays video games, chess, sleep, 
 
-20. Innocent loves music does not want to be a second class citizen, loves music 
+20. Innocent loves music does not want to be a second class citizen, loves music, uses cms
 
-21. 
+21. Abiodun, wants us to form a band, vocalist, music
+
+22. Josh, can't sing but family can loves to swim, loves fictional 
+
+23. Okunola, a.k.a skywalker like bumping high , studied computer science loves coding 
