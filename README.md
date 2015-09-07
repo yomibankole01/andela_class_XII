@@ -50,4 +50,8 @@ Our andela fellow s
 
 18. Temitope looks igbo, but yoruba, loves football, loves music. 
 
-19. 
+19. Ikena, basketball, plays video games, chess, sleep, 
+
+20. Innocent loves music does not want to be a second class citizen, loves music 
+
+21. 
